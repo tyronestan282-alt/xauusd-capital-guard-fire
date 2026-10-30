@@ -1,0 +1,1 @@
+# xauusd-capital-guard-fire
